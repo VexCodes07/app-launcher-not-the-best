@@ -1,0 +1,1 @@
+Please know that this app is not the best and can be worked on if wanted im a new little programmer and this is my first project ( i did use a tutorial so don't judge ) but yes its very good and no there isn't a keylogger or whatever
